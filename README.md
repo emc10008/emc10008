@@ -10,7 +10,7 @@
 ### <https://www.emm85.com>
 ### EMC易倍体育-永不失联:  [APP下载](https://cok017.com)
 ### <https://www.emm77.com>
-### <https://www.emm79.com>
+### <https://www.emm78.com>
 ### EMC易倍体育-永不失联:  [特殊地区链接](https://www.ad8kbm.com)
 ### [特殊地区app链接]<https://www.dk6con.com>
 ### [特殊地区PC链接]<https://www.ad8kbm.com>
