@@ -2,7 +2,7 @@
 ![image](https://github.com/emc00123/emc00123/assets/161131716/7c9a2641-80ea-4bcf-9aa9-06c69f78449d)
 
 
-### EMC易倍体育-永不失联:  [PC官网](https://www.ui7e.com)
+### EMC易倍体育-永不失联:  [PC官网]
 ### <https://www.fbje34.com>
 ### <https://www.zdrm09.com>
 ### EMC易倍体育-永不失联:  [H5官网]
