@@ -6,15 +6,15 @@
 ### <https://www.ozbc673.com>
 ### <https://www.ozbc448.com>
 ### EMC易倍体育-永不失联:  [H5官网]
-### <https://www.ozbb529.com>
-### <https://www.ozbb067.com>
+### <https://www.kkss7.com>
+### <https://www.nknk7.com>
 ### EMC易倍体育-永不失联:  [APP下载]
 ### <https://www.ozba479.com>
 ### <https://www.ozba565.com>
 ### EMC易倍体育-永不失联:  [特殊地区链接]
 ### [特殊地区app链接]<https://www.vkju11.com>
 ### [特殊地区PC链接]<https://www.mxte84.com>
-### [特殊地区H5链接]<https://www.dvvp66.com>
+### [特殊地区H5链接]<https://www.nknk7.com>
 <!--
 **emc10008/emc10008** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
