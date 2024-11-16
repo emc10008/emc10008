@@ -3,18 +3,18 @@
 
 
 ### EMC易倍体育-永不失联:  [PC官网]
-### <https://www.tuaq929.com>
-### <https://www.dcjv428.com>
+### <https://www.get1872.com>
+### <https://www.get1877.com>
 ### EMC易倍体育-永不失联:  [H5官网]
-### <https://www.vymf065.com>
-### <https://www.qkwb847.com>
+### <https://www.get1677.com>
+### <https://www.get1699.com>
 ### EMC易倍体育-永不失联:  [APP下载]
-### <https://www.aekx025.com>
-### <https://www.pnhi114.com>
+### <https://www.get1977.com>
+### <https://www.get1988.com>
 ### EMC易倍体育-永不失联:  [特殊地区链接]
-### [特殊地区app链接]<https://www.xsqi116.com>
-### [特殊地区PC链接]<https://www.dqlc829.com>
-### [特殊地区H5链接]<https://www.zsur955.com>
+### [特殊地区app链接]<https://www.get1999.com>
+### [特殊地区PC链接]<https://www.get1878.com>
+### [特殊地区H5链接]<https://www.get1687.com>
 <!--
 **emc10008/emc10008** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
