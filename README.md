@@ -2,18 +2,18 @@
 
 
 ### 永不失联:  [PC官网]
-### <https://www.kdk6549.com>
-### <https://www.kdk6550.com>
+### <https://www.gnp7957.com>
+### <https://www.gnp2732.com>
 ### 永不失联:  [H5官网]
-### <https://www.kdk6552.com>
-### <https://www.kdk6553.com>
+### <https://www.gnp3978.com>
+### <https://www.gnp8153.com>
 ### 永不失联:  [APP下载]
-### <https://www.kdk6555.com>
-### <https://www.kdk6556.com>
+### <https://www.gnp8232.com>
+### <https://www.gnp5766.com>
 ### 永不失联:  [特殊地区链接]
-### [特殊地区app链接]<https://www.kdk6557.com>
-### [特殊地区PC链接]<https://www.kdk6551.com>
-### [特殊地区H5链接]<https://www.kdk6554.com>
+### [特殊地区app链接]<https://www.gnp3854.com>
+### [特殊地区PC链接]<https://www.gnp9938.com>
+### [特殊地区H5链接]<https://www.gnp9747.com>
 <!--
 **emc10008/emc10008** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
